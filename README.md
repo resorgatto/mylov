@@ -1,4 +1,4 @@
-# Para Minha Namorada Sophia
+# Para Minha Namorada Sophia 💕
 
 Um site especial para declarar meu amor pela Sophia.
 
